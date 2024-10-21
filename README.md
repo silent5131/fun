@@ -4,4 +4,4 @@ have fun😘
 
 ps/ i am not reliable if you get in trouble 👌
 
-you will need a pass from me so don't try two share it
+you will need a password from me so don't try to share it
